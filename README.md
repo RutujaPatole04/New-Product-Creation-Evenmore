@@ -1,1 +1,1 @@
-# New-Product-Creation-Evenmore
+Crafted mission and vision statements, orchestrated product roadmaps and customer journey maps, defined product positioning and ensured the seamless UI/UX for a platform connecting students to events while empowering small businesses with cost-effective marketing for growth
